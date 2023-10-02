@@ -2,4 +2,4 @@
 - 👀 I’m interested in astrobiology, planets, remote sensing, music and arts.
 - 🌱 I’m currently working on planetary analogues at IAPS in Rome.
 - 💞️ I’m looking to collaborate on remote sensing applied to planetary sciences and astrobiology.
-- 📫 How to reach me: you can write me at giacomo.panza@studio.unibo.it
+- 📫 How to reach me: you can write me at giacomo.panza2@studio.unibo.it
